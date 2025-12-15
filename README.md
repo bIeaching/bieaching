@@ -1,4 +1,4 @@
 <p align="center">
-<img src="https://files.catbox.moe/d8tmqm.png" width="300px">
+<img src="https://media1.tenor.com/m/mANywWCwX1UAAAAC/akihiko-sanada-shinjiro-aragaki.gif" width="300px">
 <p align="center">
 <a href="https://discordid.netlify.app/?id=393232535854907394">contact</a>
