@@ -1,2 +1,2 @@
 <p align="center" </p>
-<img src="https://i.imgur.com/IeY1vhJ.png">
+<img src="https://files.catbox.moe/y8zfb9.png">
