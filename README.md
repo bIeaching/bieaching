@@ -1,3 +1,2 @@
-<video src="https://github.com/user-attachments/assets/c946dcc5-ddd2-456f-879a-3c0ac548e4d5"></video>
-
-
+<p align="center" width="100%">  <video controls controlslist="nodownload" src="https://github.com/user-attachments/assets/d351e72e-2d4a-4744-8525-c0d761715d0c" loop> </p>
+<img src="https://i.imgur.com/IeY1vhJ.png">
