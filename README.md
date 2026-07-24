@@ -1,8 +1,5 @@
 <img src="https://files.catbox.moe/9zcin3.png" align="left" style="width: 370px;">
 <p align="center">
-<img src="https://64.media.tumblr.com/28ddc5539a83ab30e2156475ba807c7a/704f4ace9de71c4b-71/s100x200/fd70f3c7245eaeb043cfd76517ddb2e7c68f0a08.pnj"> <img src="https://64.media.tumblr.com/78f8c35c09d1fc437367ce27706ec123/704f4ace9de71c4b-54/s100x200/e9fca207a02b069083f925a5b15ace34aff0eadf.pnj">
-<img src="https://64.media.tumblr.com/7ac328204395dc076221475d3af8ecc2/704f4ace9de71c4b-cf/s100x200/4a7541ccbef5b285823491aaed29230c6f49aa9f.pnj"</p>
-<h3 align="center">ALEXIS<a href="https://pronouns.cc/@birdcage">+</a> ✦ IT/ITS ✦ '04</h3>
-
-<p><b>whisper to interact,</b> we're usually off-tab. we prefer to be referred to as the current fronter, name & pronoun wise so just be aware of that. we are pretty friendly and extroverted, so dont be shy at all!
+<h3 align="center">DAISY<a href="https://pronouns.cc/@birdcage">+</a> ✦ SHE/IT ✦ 24</h3>
+<p><b>Hi, I'm Daisy! I also sometimes go by Dahlia or Daphne. I'm a beautifully off-putting biracial woman. Erotic, exotic and psychotic! I'm 24 and I primarily go by she/it. Typology-wise I'm an ISFP-A 4w5.
 </p>
